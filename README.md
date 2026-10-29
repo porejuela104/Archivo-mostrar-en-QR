@@ -1,0 +1,1 @@
+codigo qr prueba
